@@ -18,3 +18,4 @@ The Yellow River, known as the “Mother River of China,” is the second-longes
 2. The Nile River: Like the Yellow River, the Nile River has nurtured ancient civilizations, provided water for agriculture, and profoundly influenced the lives and historical development of people living along its banks.
 
 **Discovered by** [Yellow River](https://baike.baidu.com/item/%E9%BB%84%E6%B2%B3/5394)
+##Edited by Yihong
